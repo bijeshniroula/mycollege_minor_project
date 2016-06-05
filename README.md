@@ -1,0 +1,1 @@
+# mycollege_minor_project
